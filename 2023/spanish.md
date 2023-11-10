@@ -8,4 +8,8 @@
     - Did about 20 minutes of rosetta stone, still unsure on value at this stage.
 1. **November 8th, 2023**
     - Did duolingo at the laundromat for about an hour.
-    - Practiced imperfect conjugation on Spanishdict.
+    - Practiced pretérito perfecto conjugation on Spanishdict.
+1. **November 9th, 2023**
+    - Worked on conjugation drills for pretérito perfecto.
+    - Studied top 100 verbs vocab list and conjugations of them.
+    - Did a bit of duolingo.
