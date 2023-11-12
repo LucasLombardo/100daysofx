@@ -13,3 +13,11 @@
     - Worked on conjugation drills for pretérito perfecto.
     - Studied top 100 verbs vocab list and conjugations of them.
     - Did a bit of duolingo.
+    - **November 10th, 2023**
+        - Did duolingo for ~15 minutes, did not complete a full hour of spanish so not counting this as one of the 100 days.
+1. **November 11th, 2023**
+    - Worked on conjugation drills for pretérito perfecto, studied dobles and reviewed workbook on it.
+    - Reviewed top 100 verbs list on spanishdict until all words were reviewed / consistent.
+1. **November 12th, 2023**
+    - Did one unit of duolingo.
+    - Added two verb lists to spanish dict and reviewed them, removed duplicates and seperated into 3 top 100 / next 100  etc type lists for review.
