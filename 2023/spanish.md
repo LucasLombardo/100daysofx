@@ -25,3 +25,6 @@
 1. **November 13, 2023**
     - Did a unit of duolingo and completed 3 legendary challenges for completed units.
     - Practiced verb conjugation drills for preterite, present, and present perfect.
+1. **November 14, 2023**
+    - Did homework for tutoring session, preterite present worksheet.
+    - Had 1 hour tutoring session on italki with Maricé, mainly focused on preterite present practice.
