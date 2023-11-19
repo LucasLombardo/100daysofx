@@ -28,3 +28,10 @@
 1. **November 14, 2023**
     - Did homework for tutoring session, preterite present worksheet.
     - Had 1 hour tutoring session on italki with Maricé, mainly focused on preterite present practice.
+1. **November 15, 2023**
+    - Spanishdict vocab practice and a little bit of duolingo.
+1. **November 16, 2023**
+    - Did homework, writing daily diary in preterite present.
+    - 1 hour spanish tutoring session with Maricé.
+1. **November 18, 2023**
+    - Duolingo for a bit, spanishdict vocab list practice.
